@@ -1,4 +1,4 @@
 #Undefined|
 
-🐱 enjoys learning quietly•
+🐱 enjoys learning quietly•   
 🌱 exploring new things step by step 
